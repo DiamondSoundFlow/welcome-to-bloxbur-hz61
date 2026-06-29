@@ -1,4 +1,4 @@
-
+welcome to bloxburg new Scripts offers the most advanced welcome to bloxburg Script, with auto-upgrade and instant win. Perfect for dominating any
 
 
 
